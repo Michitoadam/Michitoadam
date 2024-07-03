@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Michitoadam
+- 👀 I’m interested in code
+- 🌱 I’m currently learning code
+- 😄 Pronouns: Solis
